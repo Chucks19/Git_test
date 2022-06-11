@@ -4,3 +4,5 @@ I apply grit mindset,
 I tackle challenges well,
 I give my best,
 I never settle until excellence is achieved.
+
+whooop!
